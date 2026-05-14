@@ -1,4 +1,4 @@
-#  
+#  adopt me rare Scripts offers the most advanced adopt me Script, with auto-sell and silent aim. Perfect for dominating any match.
 
 
 
